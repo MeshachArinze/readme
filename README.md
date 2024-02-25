@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **WebApp , MEARN**
 
-- 📫 How to reach me **rishavchanda0@gmail.com**
+- 📫 How to reach me **meshacharinze@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
